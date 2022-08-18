@@ -1,1 +1,1 @@
-![image](https://user-images.githubusercontent.com/97213130/164888171-1b823ece-6843-4500-82f4-a71a63aa4a42.png)
+![image](https://media.discordapp.net/attachments/826102925805092885/1009732769724764210/Resize_Banner_00000.png)
